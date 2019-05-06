@@ -2,8 +2,7 @@
 
 ## 弗曼学习法
 
-![](http://pp7rlynh9.bkt.clouddn.com/%E5%BC%97%E6%9B%BC%E5%AD%A6%E4%B9%A0%E6%B3%95.png)
-
+![](https://i.postimg.cc/T1F4wwcz/a2acc64db9478f9ee3a3fb98ac1163c28441ef9c.png)
 <b>诺贝尔物理学奖</b>得主弗曼的学习法，是<b>世界公认最快</b>的学习方法，主要有四个步骤：
 
 1. 选择一个你想理解的知识
